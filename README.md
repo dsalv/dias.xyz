@@ -1,3 +1,3 @@
 ## Hi, I am Dias Alymbekov.
 
-#Something great is coming...
+# You can contact me via email dias.alymbekov@gmail.com
