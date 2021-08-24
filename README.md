@@ -1,3 +1,3 @@
-## Hi, I am Dias Alymbekov.
+## Hi, I am Dias .
 
 # You can contact me via email 
